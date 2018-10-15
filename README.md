@@ -3,4 +3,4 @@ any of my experiments in processing
 
 here's some computer art
 
-![github](https://user-images.githubusercontent.com/17134300/46924445-af9ae780-cff2-11e8-8592-52ec807846be.gif)
+![github](https://66.media.tumblr.com/faca1bb78a10ff43bfe27c37e90778cf/tumblr_pgm7xzAR1A1xbcrjmo1_1280.gif)
